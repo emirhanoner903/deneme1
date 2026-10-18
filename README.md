@@ -1,1 +1,1 @@
-emirhanın amk
+mehmetin amk
